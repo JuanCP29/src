@@ -1,0 +1,3 @@
+Lots of history books have been written on World War 1 facts and why it started. But it all boils down to the nice that Europe had split into two large families of countries. The Allies — the British Empire, France, Belgium, Russia and later, the USA — were 
+in one family. And the Central Powers of Germany, Austria, Hungary, Bulgaria and Turkey were in the other. On 4 August 1914, Germany invaded Belgium, and so, standing by its promise to stick up for Belgium, Britain declared war on Germany. 
+The world was at war…
